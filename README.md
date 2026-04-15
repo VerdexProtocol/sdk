@@ -1,5 +1,7 @@
 # 🌐 Verdex
 
+CA Officialy L 7iRVHP1rjCTsvDAiHjmyxYXxP8uj42483anqZR8wpump
+
 **Verdex powers the future of digital assets with speed, security, and seamless decentralized innovation.**
 
 ---
